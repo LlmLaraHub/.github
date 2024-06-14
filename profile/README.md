@@ -14,6 +14,8 @@ https://github.com/LlmLaraHub/.github/assets/365385/779e9bf0-a85f-4d90-b113-1709
 
   🧑🏻‍💻 The Code - https://github.com/LlmLaraHub/laralamma 
 
+  🫶🏻 Patreon - https://patreon.com/larallama?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink
+
   📰 The NewsLetter - https://sundance-solutions.mailcoach.app/larallama-app  
 
   🖊️ Medium - https://medium.com/@alnutile 
